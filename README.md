@@ -2,7 +2,7 @@
 
 Trabalho desde os 14 anos, tenho quase ✨ 30 anos ✨ de experiência entregando valor real para grandes empresas que tiveram forte crescimento:
 
-🔭 2 anos na Amil ( Especialista de Engenharia e Arquiteto de Soluções );
+🔭 2 anos na Amil ( Especialista de Engenharia de Infraestrutura e Arquiteto de Soluções );
 
 🔭 9 anos na Cogna Educação ( Gestão de Dados e Arquitetura Corporativa );
 
@@ -12,7 +12,7 @@ Trabalho desde os 14 anos, tenho quase ✨ 30 anos ✨ de experiência entregand
 
 🔭 8 anos no Grupo Pão de Açúcar ( Analista de Informações ).
 
-Experiência com arquitetura de soluções, integrações de dados, desenvolvimento e implantação de sistemas nas áreas de Educação, Saúde, Financeira e Varejo.
+Experiência nas áreas de Financeira, Educação, Saúde e Varejo.
 
 ### Experiências:
 
