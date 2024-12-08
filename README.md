@@ -1,4 +1,4 @@
-## Olá 👋 Sou Fernando Lino ( Flinox ) Di Tomazzo Silva
+## Olá 👋 Sou Fernando Lino ( Flinox ) D T Silva
 
 Trabalho desde os 14 anos, tenho quase ✨ 30 anos ✨ de experiência entregando valor real para grandes empresas que tiveram forte crescimento:
 
